@@ -1,2 +1,0 @@
-# Devroma-LoveStory
-Devroma LoveStory
